@@ -5,3 +5,7 @@
 
 數十年難得一見，吉翁軍事強大的機會要來了……⬇️⬇️⬇️
 [![機動戰士高達 SEED FREEDOM](/pic/freedom.jpg "FREEDOM")](https://jumi.one/vod/256078.html)
+
+
+
+###### 防止有人真覺得我是傻逼: [原委](/pic/yuanwei)
